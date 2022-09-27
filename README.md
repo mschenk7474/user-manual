@@ -1,5 +1,5 @@
 # User Manual :man:
-**Created by Mason Schenk** 
+**Created by Mason Schenk** :desktop_computer:
 
 ## What is Your Style?
 - Friendly

@@ -5,6 +5,7 @@
 - :bust_in_silhouette: Friendly
   - I am always willing to hang out with people. Friends make the world go round, and I am always trying to make new friends, no matter where I go. My social life is very important to me as well, which friends contribute to immensely.
 - :notebook: Organized
+  - I am a very organzied person, at work, school, and at home. I have all of my homework in a to-do list with all my assignments and their due dates listed. I also have a to-do list for the day where I pull from the other to-do lists, such as the one I spoke of before, and others for work and my personal life.
 - :construction_worker: Willing to Help
 ## What do you Value?
 - My Family & Friends

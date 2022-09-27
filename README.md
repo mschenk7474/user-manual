@@ -27,9 +27,12 @@
   - Now, I am not against communicating online. For some things, I would much rather communicate online, such as department forums, or anything with lots of information. With it being online, most of the time all of the information is written down, so I can come back to it whenever I may need to use it or refer back to it. Online is also great to communicate with family and friends who may not live near you at the moment, and I am so happy we have technology that allows us to do that. I couldn't imagine not being able to speak with my family and friends, no matter where they may be in the world. It is also a good way to make new friends because everyone is connected through the internet. You just have to be brave enough to put yourself out there and make the friends you want. 
 ## How do you Make Decisions?
 - :thinking: Think Through it
-  - What are the Implications of the Decision?
+  - When making decisions, I like to think about some possible outcomes that might come from making the decision. I then will see what this decision is for, whether that be just for me, my family, etc. Then I will consider the overall impact on making this decision with what I am doing in the moment and decide whether or not to do it. I do not think this everytime I make a decision, but I do make mental notes of what else I could be doing, who I am effecting by doing this, and how it effects me in the process.
 ## What do People Misunderstand About me?
 - :sunglasses: I am Both Introverted and Extroverted
+  - As stated previously, I love being with people. People are amazing, but I also do love my personal time, whatever that may be depeneding on my mood. To go off both of those statements, I would say I am extroverted, but need some introverted time to myself to be truly productive and recharge my social battery. 
 - :policeman: I am not Intimidating
+  - Sometimes when people look at me and see my shaved head and big frame, they don't approach me. I want everyone to know that I am very nice, and I am not intimidating. I am always willing to help others, and be a friend to those in need. Just because I look a certain way doesn't mean I will act a certain way. Never judge a book by its cover. 
 ## How can People Help you?
 - :speaking_head: Being Able to Talk Things Through
+  - Whenever I need help, 90% of the time it can be solved if the person sitting there can just let me bounce ideas off of them. I have a million thoughts going through my head all of the time, so it is really nice to talk with someone and articulate those thoughts into what I need to do next. That is why I have all my to-do lists and am very organized. If I wasn't, I would be a mess. 

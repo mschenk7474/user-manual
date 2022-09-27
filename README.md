@@ -2,9 +2,9 @@
 **Created by Mason Schenk** :game_die:
 
 ## What is Your Style?
-- Friendly
-- Organized
-- Willing to Help
+- :bust_in_silhouette: Friendly
+- :notebook: Organized
+- :construction_worker: Willing to Help
 ## What do you Value?
 - My Family & Friends
 - Personal Time

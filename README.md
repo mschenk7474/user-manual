@@ -19,10 +19,12 @@
   - I love learning. I feel like there are always opportunities to learn in life, you just have to be actively looking for them. If I am being honest, I am not always the best at taking advice or criticism from others, but I am actively working on fixing that. Learning comes in all shapes and sizes, and a day that you learn something is a day not wasted in my books. 
 ## When is the Best Time to Approach you?
 - :construction_worker_man: Anytime, Except When I am Working
-  - Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
+  - Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk. It doesn't matter what it may be about, I like to talk, share my interests, and make new friends where I can.
 ## How do you Like People to Communicate With you?
 - :grin: In-person
+  - I am an in-person type of communicator first. I feel like people don't respond online unless 1) they are forced to for work/school or 2) they want to for a specific reason. When you are talking/communicating with someone in-person, it is very easy to read them and get conversation rather than doing it online and getting a resonse every hour or so. I rather start my relationships with people in-person first, and then move online. Then, I know how to reach them in person, and could also reach out to them online if I don't see them in-person.
 - :computer: Online
+  - Now, I am not against communicating online. For some things, I would much rather communicate online, such as department forums, or anything with lots of information. With it being online, most of the time all of the information is written down, so I can come back to it whenever I may need to use it or refer back to it. Online is also great to communicate with family and friends who may not live near you at the moment, and I am so happy we have technology that allows us to do that. I couldn't imagine not being able to speak with my family and friends, no matter where they may be in the world. It is also a good way to make new friends because everyone is connected through the internet. You just have to be brave enough to put yourself out there and make the friends you want. 
 ## How do you Make Decisions?
 - :thinking: Think Through it
   - What are the Implications of the Decision?

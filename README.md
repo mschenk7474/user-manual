@@ -1,5 +1,5 @@
 # User Manual
-** Created by Mason Schenk ** 
+**Created by Mason Schenk** 
 
 ## What is your style?
 ## What do you value?

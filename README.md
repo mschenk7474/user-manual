@@ -9,23 +9,21 @@
 - :construction_worker: Willing to Help
   - I always am willing to help others. I know how it feels to be stuck on something and have no one to turn to, so I am always available to talk things through. I may not know everything and may not be able to help you in the moment, but I am willing to listen to you and then get back to you with some researched help that I found from sources that I trust. 
 ## What do you Value?
-- My Family & Friends
-- Personal Time
+- :family: My Family & Friends
+- :lotus_position_man: Personal Time
 - :church: My Religion
-- My Ability to Learn
+- :books: My Ability to Learn
 ## When is the Best Time to Approach you?
-- Anytime, Except When I am Working
+- :construction_worker_man: Anytime, Except When I am Working
   - Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
 ## How do you Like People to Communicate With you?
-- In-person
-- Online
+- :grin: In-person
+- :computer: Online
 ## How do you Make Decisions?
-- Think Through it
-- Consider all Possibilities
-- What are the Implications of the Decision?
+- :thinking: Think Through it
+  - What are the Implications of the Decision?
 ## What do People Misunderstand About me?
-- I am Both Introverted and Extroverted
-- I am not Intimidating
-- I am Always Willing to Help
+- :sunglasses: I am Both Introverted and Extroverted
+- :policeman: I am not Intimidating
 ## How can People Help you?
-- Being Able to Talk Things Through
+- :speaking_head: Being Able to Talk Things Through

@@ -8,7 +8,7 @@
 ## What do you Value?
 - My Family & Friends
 - Personal Time
-- My Religion
+- :church: My Religion
 - My Ability to Learn
 ## When is the Best Time to Approach you?
 - Anytime, Except When I am Working

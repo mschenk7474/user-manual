@@ -14,7 +14,9 @@
 - :lotus_position_man: Personal Time
   - Personal time is a big one for me. I love being with friends and family, as stated above, but I do need my me time. Whether that be just doing my homework alone, watching a tv show, or playing a video game, it doesn't really matter. It's up to how I am feeling in the moment and what will help me recharge from it all the best. I almost find it therapeutic to have that time to myself each and everyday, wherever and whenever I may have it.  
 - :church: My Religion
+  - My religion is a big thing to me as well. I am a member of The Church of Jesus Christ of Latter-Day Saints, and I am very proud to say that. I believe in my religion to the point that I volunteered to be sent to a random place, out of my own pocket, in the middle of a pandemic, to serve others and teach them about Jesus Christ. I did this because I want to share with others the way I feel and how the teachings of The Church of Jesus Christ of Latter-Day Saints have impacted me, so maybe one day, they may feel they way I feel.
 - :books: My Ability to Learn
+  - I love learning. I feel like there are always opportunities to learn in life, you just have to be actively looking for them. If I am being honest, I am not always the best at taking advice or criticism from others, but I am actively working on fixing that. Learning comes in all shapes and sizes, and a day that you learn something is a day not wasted in my books. 
 ## When is the Best Time to Approach you?
 - :construction_worker_man: Anytime, Except When I am Working
   - Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.

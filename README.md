@@ -1,4 +1,6 @@
 # User Manual
+** Created by Mason Schenk ** 
+
 ## What is your style?
 ## What do you value?
 ## When is the best time to approach you?

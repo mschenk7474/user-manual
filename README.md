@@ -11,8 +11,8 @@
 - My Religion
 - My Ability to Learn
 ## When is the Best Time to Approach you?
-Anytime, Except When I am Working
--Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
+- Anytime, Except When I am Working
+  - Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
 ## How do you Like People to Communicate With you?
 - In-person
 - Online

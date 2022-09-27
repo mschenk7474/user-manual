@@ -7,6 +7,7 @@
 - :notebook: Organized
   - I am a very organzied person, at work, school, and at home. I have all of my homework in a to-do list with all my assignments and their due dates listed. I also have a to-do list for the day where I pull from the other to-do lists, such as the one I spoke of before, and others for work and my personal life.
 - :construction_worker: Willing to Help
+  - I always am willing to help others. I know how it feels to be stuck on something and have no one to turn to, so I am always available to talk things through. I may not know everything and may not be able to help you in the moment, but I am willing to listen to you and then get back to you with some researched help that I found from sources that I trust. 
 ## What do you Value?
 - My Family & Friends
 - Personal Time

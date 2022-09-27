@@ -1,4 +1,4 @@
-# User Manual
+# User Manual :blond_haired_person:
 **Created by Mason Schenk** 
 
 ## What is Your Style?

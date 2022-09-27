@@ -3,6 +3,7 @@
 
 ## What is Your Style?
 - :bust_in_silhouette: Friendly
+  - I am always willing to hang out with people. Friends make the world go round, and I am always trying to make new friends, no matter where I go. My social life is very important to me as well, which friends contribute to immensely.
 - :notebook: Organized
 - :construction_worker: Willing to Help
 ## What do you Value?

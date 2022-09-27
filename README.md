@@ -11,17 +11,18 @@
 - My Religion
 - My Ability to Learn
 ## When is the Best Time to Approach you?
-- Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
+- Anytime, Except When I am Working
+  -Unless I am working on something, feel free to come up to me! I get tunnel vision when I do my assisgnments, but any other time, I am always up to talk.
 ## How do you Like People to Communicate With you?
-- In person
+- In-person
 - Online
 ## How do you Make Decisions?
-- Think through it
-- Consider all possibilities
-- What are the implications of the decision?
+- Think Through it
+- Consider all Possibilities
+- What are the Implications of the Decision?
 ## What do People Misunderstand About me?
-- I am both introverted and extroverted
-- I am not that intimidating
-- I am always willing to help
+- I am Both Introverted and Extroverted
+- I am not Intimidating
+- I am Always Willing to Help
 ## How can People Help you?
 - Being Able to Talk Things Through
